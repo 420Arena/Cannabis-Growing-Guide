@@ -1,3 +1,5 @@
+<img src="https://420arena.com/wp-content/uploads/2018/12/544-180.png">
+
 # Cannabis Growing Guide
 List of Thorough and comprehensive guides on how to Grow Weed/Cannabis Professionally from your own Home, Farm or Garden.
 
